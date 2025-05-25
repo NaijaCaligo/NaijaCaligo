@@ -1,8 +1,8 @@
 - 👋 Cześć, jestem @NaijaCaligo
 - 👀 Interesuję się historią, kulturą i sztuką
 - 🌱 Obecnie uczę się do rozszerzonych matur (Pol-Ang-Hist-WOS) ale też Niemieckiego, Hiszpańskego i Norweskiego
-- 💞️ Chcę pracować nad projektem Kawa-wa, czyli krótkimi przewodnikami po Warszawie dla wszystkich, tak by można było posłuchać przy porannej kawie
-- 📫 IG: kawa_wa
+- 💞️ Chcę pracować nad projektem Kawa_rszawa, czyli krótkimi przewodnikami po Warszawie dla wszystkich, tak by można było posłuchać przy porannej kawie
+- 📫 IG: kawa_rszawa
 - 😄 Ona/jej 
 - ⚡ Fun fact: piszę opowiadania i książkę
 
